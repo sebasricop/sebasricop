@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sebastianrp21@hotmail.com**
 
-- 🌐 link GitHub **https://github.com/sebasricop**
+- 🌐 GitHub **https://github.com/sebasricop**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
